@@ -1,0 +1,2 @@
+# pogak
+daw liki ka
